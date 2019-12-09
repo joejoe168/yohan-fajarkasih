@@ -1,0 +1,2 @@
+# yohan-fajarkasih
+amd osx
